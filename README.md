@@ -5,7 +5,7 @@
 🤖 My current interests include **scientific computing**, **quantum computing** and **robotics** — stay tuned for upcoming projects!
 
 📫 **Let’s connect:**  
-You can find me on [LinkedIn](https://www.linkedin.com/) — I’d love to exchange ideas or collaborate on exciting interdisciplinary projects.
+You can find me on [LinkedIn](https://www.linkedin.com/) — I’d love to exchange ideas or collaborate on cool projects :)
 
 ---
 
